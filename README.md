@@ -224,4 +224,4 @@ Gas Guzzlers: Combat Carnage is offered as a complete free version with all feat
 Start your engines and download **Gas Guzzlers: Combat Carnage** today for an unforgettable racing experience!
 
 ---
-**Last updated:** 2026-11-06 09:11:19 UTC
+**Last updated:** 2026-11-06 17:19:33 UTC
